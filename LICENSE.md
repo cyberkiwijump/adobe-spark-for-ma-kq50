@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Spark for macOS integration with vip Adobe Spark for macOS Integration | preset-packs + HDR-editing. Featuring preset-packs and HDR-editing, it's the best
 
 
 
